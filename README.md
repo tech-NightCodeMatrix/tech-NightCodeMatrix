@@ -1,1 +1,2 @@
-- 👋 Hi, I’m @tech-NightCodeMatrix
+You're Not The Only One Cursed With Knowledge.
+
